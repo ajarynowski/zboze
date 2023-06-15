@@ -1,0 +1,2 @@
+# zboze
+Mis/dez-informacja
